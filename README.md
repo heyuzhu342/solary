@@ -11,4 +11,6 @@ Our staff is more than just colleagues – they are our family. We foster a cult
 
 To uphold our commitment to fairness and sustainability, social audits are conducted annually at Kirin Jewelry. We prioritize fair treatment, health and safety compliance, fair wages, and responsible resource management, striving to protect both our workers and the environment.
 
-At Kirin Jewelry, we are dedicated to delivering beautiful, quality pieces of handmade jewelry while upholding the highest standards of ethics and sustainability. Join us in our journey towards a more conscious and responsible future.
+At Kirin Jewelry, we are dedicated to delivering beautiful, quality pieces of handmade jewelry while upholding the highest standards of ethics and sustainability. Join us in our journey toward a more conscious and responsible future.
+
+Make a statement with our <a href="https://www.kirinjewelrywholesale.com/collections/925-sterling-silver-ring">Wholesale Ring Jewelry</a>. From minimalist chic to bold expressions, each ring is a captivating addition to your collection. Discover the enduring beauty and diverse styles that elevate your look.
